@@ -33,6 +33,10 @@ Hi, L0ngiX here<br>Worst coder and best larper<br>How was i tf able to larp the 
 
 ###
 
+![snake gif](https://github.com/L0ngiX/L0ngiX/blob/output/github-snake-dark.svg)
+
+###
+
 Larp - I hate this word
 
 Certified monster girl enthusiast. MGE one love.
