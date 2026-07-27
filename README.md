@@ -39,5 +39,4 @@ Hi, L0ngiX here<br>Worst coder and best larper<br>How was i tf able to larp the 
 
 Larp - I hate this word
 
-Certified monster girl enthusiast. MGE one love.
-Shoggoth my beloved.
+Certified monster girl lover.<br>MGE one love.<br>Shoggoth my beloved.
