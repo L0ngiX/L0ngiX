@@ -40,3 +40,5 @@ Hi, L0ngiX here<br>Worst coder and best larper<br>How was i tf able to larp the 
 Larp - I hate this word
 
 Certified monster girl lover.<br>MGE one love.<br>Shoggoth my beloved.
+
+![beloved gif](https://github.com/L0ngiX/L0ngiX/blob/dbb318d26e553ba81666af3bae89fe14222a4d0c/assets/Gsdryed%20wi%20lovyfon%2C%20wi%20myno%20nyocx'd%20gybu.gif)
