@@ -1,5 +1,5 @@
 <h1 align="center"> 😁 I, Me. Wonderful me </h1>
-Hi, L0ngiX here<br>Worst coder and best larper<br>How was i tf able to larp the code? Good question<br>But why do we keep talking about me... Let's talk about me instead<br>
+Hi, L0ngiX here<br>Worst coder and best code larper<br>How tf could I larp the code? Good question<br>But why do we keep talking about me... Let's talk about me instead<br>
 
 ###
 
