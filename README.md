@@ -23,9 +23,9 @@ Hi, L0ngiX here<br>Worst coder and best larper<br>How was i tf able to larp the 
   <img src="https://skillicons.dev/icons?i=visualstudio" height="40" alt="visualstudio logo"  />
   <img width="12" />
 </div>
-
-![](https://github-readme-stats.shion.dev/api/top-langs/?username=L0ngiX&theme=dark&hide_border=false&include_all_commits=true&count_private=true&layout=compact)
-
+<p align="center">
+<img src="https://github-readme-stats.shion.dev/api/top-langs/?username=L0ngiX&theme=dark&hide_border=false&include_all_commits=true&count_private=true&layout=compact">
+</p>
 Larp - I hate this word
 
 Certified monster girl enthusiast. MGE one love.
